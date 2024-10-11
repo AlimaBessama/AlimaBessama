@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI and cybersecurity
 - 🌱 I’m currently learning cybersecurity for professionals
 - 💞️ I’m looking to collaborate on Linux and Python project
-- 📫 How to reach me alimanzeket@gmail.com
+- 📫 How to reach me : www.linkedin.com/in/alima-nzeket-njoya-bb9aab10a
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: music and movies
 
